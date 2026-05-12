@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with secure opensea sniper bot | volume-analysis + slippage-control, the #1 opensea sniper bot. Includes volume-analysis and slippage-control for a faster
 
 
 
